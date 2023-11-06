@@ -1,4 +1,4 @@
-### ARRIBA LA MAQUINA CEMENTERA DEL CRUZ AZUL 👋
+### En la vida como en las motos, no hay reversa 👋
 
 <!--
 **Kilodemichote/Kilodemichote** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
